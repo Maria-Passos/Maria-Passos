@@ -1,1 +1,1 @@
-👋 Hi, I’m @Maria Eduarda Gusmão!
+👋 Hi, Eu sou Maria Eduarda Gusmão!
